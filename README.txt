@@ -14,6 +14,6 @@ FAQ
 
 1. Why? 
 
-Because Joanna Rothman from the Internet told me an idea 
+Because Johanna Rothman from the Internet told me an idea 
 and then I did the idea. See:
 https://twitter.com/johannarothman/status/983347074430328833
